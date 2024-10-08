@@ -1,5 +1,5 @@
 - puppymoder puppygirl woof woof bark bark ( •̀ ω •́ )~
-- studying cyber security =￣ω￣=
+- studying cyber security BSc =￣ω￣=
 - have a nice day (*￣▽￣*)ブ
 
 <!---
