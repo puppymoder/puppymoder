@@ -1,5 +1,4 @@
-- puppymoder puppygirl woof woof bark bark ( •̀ ω •́ )~
-- have a nice day (*￣▽￣*)ブ
+have a nice day (*￣▽￣*)ブ
 
 <!---
 puppymoder/puppymoder is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
